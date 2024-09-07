@@ -7,6 +7,6 @@
 
 ➛ 📫 My discord actually is `modplus_`
 
-➛ 🌿 Currently working on `LegendsMC Network` *discord.gg/legendsmc*
+➛ 🌿 Currently working on `Ember Network` *discord.gg/hcfactions*
 
 ⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯

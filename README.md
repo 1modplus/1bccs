@@ -5,8 +5,8 @@
 
 ➛ 🌱 I’m currently learning Java
 
-➛ 📫 My discord actually is `modplus_`
+➛ 📫 My discord actually is `mmodplus_`
 
-➛ 🌿 Currently working on `Ember Network` *discord.gg/hcfactions*
+➛ 🌿 Currently working on `Vaey Network`
 
 ⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯
